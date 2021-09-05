@@ -1,1 +1,1 @@
-Pokémon GO tips
+This website is all about Pokémon GO!
