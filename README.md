@@ -1,1 +1,1 @@
-# pokemongo.github.io
+Pokémon GO tips
